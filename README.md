@@ -1,1 +1,1 @@
-Figure skating became an official Olympic sport at the 1908 Summer Olympics in London, with separate events for men, women, and pairs skating.
+Yuzuru Hanyu of Japan is known for his mastery of quadruple jumps, including the quadruple Axel, a jump with four and a half rotations, which he has landed in practice.
