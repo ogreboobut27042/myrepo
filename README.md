@@ -1,1 +1,1 @@
-Yuzuru Hanyu of Japan is known for his mastery of quadruple jumps, including the quadruple Axel, a jump with four and a half rotations, which he has landed in practice.
+Biathletes must control their heart rate and breathing to shoot accurately, as missed targets result in time penalties, either through added time or penalty loops.
