@@ -1,1 +1,1 @@
-The United States holds the record for the most Davis Cup titles, with 32 titles won as of 2021.
+Biathletes must balance speed and accuracy during the skiing portion of the race, conserving energy for shooting while maintaining a competitive pace against opponents.
