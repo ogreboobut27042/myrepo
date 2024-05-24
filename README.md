@@ -1,1 +1,1 @@
-Biathletes must balance speed and accuracy during the skiing portion of the race, conserving energy for shooting while maintaining a competitive pace against opponents.
+Tennis scoring follows a unique system, with matches typically played to the best of three or five sets, and each set consisting of games, which are further divided into points.
