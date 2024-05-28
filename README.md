@@ -1,1 +1,1 @@
-Tennis scoring follows a unique system, with matches typically played to the best of three or five sets, and each set consisting of games, which are further divided into points.
+Judges award scores based on the quality and difficulty of elements performed, with deductions for mistakes, falls, and errors in execution.
