@@ -1,1 +1,1 @@
-Judges award scores based on the quality and difficulty of elements performed, with deductions for mistakes, falls, and errors in execution.
+The term "love" for zero in tennis scoring is believed to have originated from the French word "l'oeuf," meaning egg, which resembles the shape of a zero.
