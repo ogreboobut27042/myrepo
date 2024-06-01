@@ -1,1 +1,1 @@
-The term "love" for zero in tennis scoring is believed to have originated from the French word "l'oeuf," meaning egg, which resembles the shape of a zero.
+Figure skating routines are judged based on technical elements, including jumps, spins, and footwork, as well as artistic components like choreography, interpretation, and expression.
