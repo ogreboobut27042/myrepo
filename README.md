@@ -1,1 +1,1 @@
-Biathletes undergo rigorous training programs that include skiing, shooting, strength training, endurance training, and mental preparation for competition.
+Quadruple jumps, or "quads," are jumps with four full rotations in the air and are the most difficult jumps performed in figure skating competitions.
