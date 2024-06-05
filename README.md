@@ -1,1 +1,1 @@
-Quadruple jumps, or "quads," are jumps with four full rotations in the air and are the most difficult jumps performed in figure skating competitions.
+Biathlon combines cross-country skiing and rifle marksmanship, with athletes skiing multiple laps around a course and stopping at shooting ranges to shoot at targets.
