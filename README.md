@@ -1,1 +1,1 @@
-Biathlon combines cross-country skiing and rifle marksmanship, with athletes skiing multiple laps around a course and stopping at shooting ranges to shoot at targets.
+Tennis racquets have evolved significantly over the years, from wooden frames in the early days to modern graphite and carbon fiber composites used by professional players today.
