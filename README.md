@@ -1,1 +1,1 @@
-Tennis racquets have evolved significantly over the years, from wooden frames in the early days to modern graphite and carbon fiber composites used by professional players today.
+Biathlon rifles are .22 caliber bolt-action rifles equipped with specialized sights and stocks designed for stability and accuracy in standing and prone shooting positions.
