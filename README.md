@@ -1,1 +1,1 @@
-Biathlon rifles are .22 caliber bolt-action rifles equipped with specialized sights and stocks designed for stability and accuracy in standing and prone shooting positions.
+Figure skating became an official Olympic sport at the 1908 Summer Olympics in London, with separate events for men, women, and pairs skating.
