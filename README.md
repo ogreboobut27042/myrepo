@@ -1,1 +1,1 @@
-Biathletes shoot at targets from both the standing and prone positions, with five circular targets positioned 50 meters away for each shooting stage.
+Biathlon rifles are .22 caliber bolt-action rifles equipped with specialized sights and stocks designed for stability and accuracy in standing and prone shooting positions.
