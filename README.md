@@ -1,1 +1,1 @@
-Biathlon rifles are .22 caliber bolt-action rifles equipped with specialized sights and stocks designed for stability and accuracy in standing and prone shooting positions.
+Biathlon combines cross-country skiing and rifle marksmanship, with athletes skiing multiple laps around a course and stopping at shooting ranges to shoot at targets.
