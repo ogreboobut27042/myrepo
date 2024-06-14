@@ -1,1 +1,1 @@
-Biathlon combines cross-country skiing and rifle marksmanship, with athletes skiing multiple laps around a course and stopping at shooting ranges to shoot at targets.
+The first recorded figure skating competition took place in 1865 in St. Petersburg, Russia, featuring a combination of compulsory figures and free skating performances.
