@@ -1,1 +1,1 @@
-The first recorded figure skating competition took place in 1865 in St. Petersburg, Russia, featuring a combination of compulsory figures and free skating performances.
+Biathletes must balance speed and accuracy during the skiing portion of the race, conserving energy for shooting while maintaining a competitive pace against opponents.
