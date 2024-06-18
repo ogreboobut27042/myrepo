@@ -1,1 +1,1 @@
-Biathletes must balance speed and accuracy during the skiing portion of the race, conserving energy for shooting while maintaining a competitive pace against opponents.
+Sonja Henie of Norway was the first female figure skater to win three consecutive Olympic gold medals, achieving this feat in 1928, 1932, and 1936.
