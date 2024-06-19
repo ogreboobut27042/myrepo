@@ -1,1 +1,1 @@
-Wimbledon is the only Grand Slam tournament still played on grass courts, giving it a unique and traditional feel.
+Biathlon combines cross-country skiing and rifle marksmanship, with athletes skiing multiple laps around a course and stopping at shooting ranges to shoot at targets.
