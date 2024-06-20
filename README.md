@@ -1,1 +1,1 @@
-Biathlon combines cross-country skiing and rifle marksmanship, with athletes skiing multiple laps around a course and stopping at shooting ranges to shoot at targets.
+Figure skating became an official Olympic sport at the 1908 Summer Olympics in London, with separate events for men, women, and pairs skating.
