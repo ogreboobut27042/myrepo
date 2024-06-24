@@ -1,1 +1,1 @@
-Figure skating became an official Olympic sport at the 1908 Summer Olympics in London, with separate events for men, women, and pairs skating.
+Another iconic rivalry is between Serena Williams and Maria Sharapova, with Williams holding a dominant head-to-head record against Sharapova.
