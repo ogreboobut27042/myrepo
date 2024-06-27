@@ -1,1 +1,1 @@
-Another iconic rivalry is between Serena Williams and Maria Sharapova, with Williams holding a dominant head-to-head record against Sharapova.
+Canadian figure skater Kurt Browning was the first to successfully land a quadruple jump in competition at the 1988 World Championships.
