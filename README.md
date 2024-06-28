@@ -1,1 +1,1 @@
-Canadian figure skater Kurt Browning was the first to successfully land a quadruple jump in competition at the 1988 World Championships.
+The Davis Cup format underwent significant changes in 2019, transitioning to a World Cup-style event featuring 18 teams competing in a week-long tournament.
