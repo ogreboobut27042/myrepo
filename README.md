@@ -1,1 +1,1 @@
-The Davis Cup format underwent significant changes in 2019, transitioning to a World Cup-style event featuring 18 teams competing in a week-long tournament.
+The Wimbledon Championships are known for their strict dress code, with players required to wear predominantly white clothing.
