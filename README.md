@@ -1,1 +1,1 @@
-Figure skaters often wear elaborate costumes designed to complement their music, choreography, and performance style, incorporating sequins, feathers, and intricate embellishments.
+Wimbledon is the only Grand Slam tournament still played on grass courts, giving it a unique and traditional feel.
