@@ -1,1 +1,1 @@
-Wimbledon is the only Grand Slam tournament still played on grass courts, giving it a unique and traditional feel.
+Ice rinks are typically kept at temperatures below freezing to ensure the ice remains solid and provides optimal conditions for skating.
