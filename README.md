@@ -1,1 +1,1 @@
-One of the most famous rivalries in tennis history is between Rafael Nadal and Roger Federer, who have faced each other over 40 times in their careers.
+Biathlon has its roots in Scandinavian hunting and military traditions, with early forms of ski-and-shoot competitions dating back to the 18th century.
