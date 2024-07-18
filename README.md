@@ -1,1 +1,1 @@
-Biathlon has its roots in Scandinavian hunting and military traditions, with early forms of ski-and-shoot competitions dating back to the 18th century.
+The United States has produced numerous world champions in figure skating, including Peggy Fleming, Michelle Kwan, and Scott Hamilton.
