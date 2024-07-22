@@ -1,1 +1,1 @@
-The United States has produced numerous world champions in figure skating, including Peggy Fleming, Michelle Kwan, and Scott Hamilton.
+Strawberries and cream is a traditional snack enjoyed by spectators at Wimbledon, with over 28,000 kilograms of strawberries consumed during the tournament.
