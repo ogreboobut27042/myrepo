@@ -1,1 +1,1 @@
-Tennis balls were originally made of leather stuffed with wool or hair, but modern tennis balls are made of a hollow rubber core covered in a fuzzy felt material.
+Strawberries and cream is a traditional snack enjoyed by spectators at Wimbledon, with over 28,000 kilograms of strawberries consumed during the tournament.
