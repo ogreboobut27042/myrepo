@@ -1,1 +1,1 @@
-Strawberries and cream is a traditional snack enjoyed by spectators at Wimbledon, with over 28,000 kilograms of strawberries consumed during the tournament.
+The first recorded figure skating competition took place in 1865 in St. Petersburg, Russia, featuring a combination of compulsory figures and free skating performances.
